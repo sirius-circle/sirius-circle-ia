@@ -1,10 +1,10 @@
-# 🚀 Sirius Circle – La Formation d’Anthony Sirius (Avis + Code Promo)
+# 🚀 Sirius Circle – La Formation d’Anthony Sirius sur l'IA
 
 > La communauté **exclusive** qui utilise l’IA pour générer des revenus réels et atteindre la liberté financière.
 
 ---
 
-## 🔥 Tu as adoré le challenge IA ? Passe maintenant au **LEVEL UP**
+## 🔥 Passe maintenant au **LEVEL UP** de ta vie
 
 Le **SIRIUS CIRCLE** n’est pas une formation classique.  
 👉 C’est **le club privé** des entrepreneurs qui veulent **arrêter de perdre du temps** et commencer à encaisser avec l’Intelligence Artificielle.  
@@ -67,19 +67,19 @@ Pas besoin d’audience, de budget ou de compétences techniques.
 
 ## 💬 Témoignage
 
-> *"En 48h, j’ai encaissé plus de 1000$ avec le programme Sirius Circle. C’est dingue !"*  
-— **Richard Marvyn**
+> *"Après plus de 2 ans j'ai enfin quitté mon CDI. En seulement 2 mois j'ai triplé mon ancien salaire. Grâce à l'IA et au Sirius Circle. La liberté est réelle quand on s'en donne les moyens."*  
+— **Yéti bleu**
+
+> *"+6000€ et c'est que le début. Depuis que je suis arrivé dans l'aventure, j'ai appris énormément de choses. Chaque live avec vous est toujours hyper intéressant et je vois que vous vous améliorez tous"*  
+— **Yéti bleu**
+
+> *"+3200$ en 30 jours et ce n'est pas fini. Au début  j'ai rejoint le Sirius Circle à reculons. Je me disais ok, encore un bail qui vend du rêve. J'ai mis 97$, j'ai fermé ma gueule... et j'ai commencé à taffer. Les résultats ont parlé d'eux même."*  
+— **Lucas S**
+
+> *"Plus de 30 000€ générés en 40 jours grâce au Sirius Circle ! Pas de miracle, pas de raccourci : juste du contenu publié chaque jour, de la régularité et l'envie de progresser à chaque étape. La vérité, c'est que la plupart abandonnent avant même d'avoir commencer."*
+— **Autome Business**
 
 ➡️ [**JE VEUX LES MÊMES RÉSULTATS**](https://www.sirius-circle-ia.fr/)
-
----
-
-## ⏳ Attention : l’opportunité est limitée
-
-Chaque jour où tu attends, **d’autres passent à l’action et prennent leur place**.  
-💡 Ceux qui réussissent sont ceux qui osent **cliquer maintenant**.
-
-➡️ [**REJOINS LE SIRIUS CIRCLE IMMÉDIATEMENT**](https://www.sirius-circle-ia.fr/)
 
 ---
 
