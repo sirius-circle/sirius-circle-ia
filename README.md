@@ -76,7 +76,7 @@ Pas besoin d’audience, de budget ou de compétences techniques.
 > *"+3200$ en 30 jours et ce n'est pas fini. Au début  j'ai rejoint le Sirius Circle à reculons. Je me disais ok, encore un bail qui vend du rêve. J'ai mis 97$, j'ai fermé ma gueule... et j'ai commencé à taffer. Les résultats ont parlé d'eux même."*  
 — **Lucas S**
 
-> *"Plus de 30 000€ générés en 40 jours grâce au Sirius Circle ! Pas de miracle, pas de raccourci : juste du contenu publié chaque jour, de la régularité et l'envie de progresser à chaque étape. La vérité, c'est que la plupart abandonnent avant même d'avoir commencer."*
+> *"Plus de 30 000€ générés en 40 jours grâce au Sirius Circle ! Pas de miracle, pas de raccourci : juste du contenu publié chaque jour, de la régularité et l'envie de progresser à chaque étape. La vérité, c'est que la plupart abandonnent avant même d'avoir commencer."*  
 — **Autome Business**
 
 ➡️ [**JE VEUX LES MÊMES RÉSULTATS**](https://www.sirius-circle-ia.fr/)
